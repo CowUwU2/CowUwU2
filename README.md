@@ -1,0 +1,5 @@
+- 👋 Xin chào, tôi là @CowUwU2
+- 👀 Tôi quan tâm đến Code Web
+- 🌱 Hiện tại tôi đang học về mảng lập trình website
+- 📫 Liên lạc được với tôi bằng discord: kanuwutq_
+- ⚡ Sự thật thú vị: Tôi code toàn bug ...
